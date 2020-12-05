@@ -1,0 +1,17 @@
+Ingredients:
+ - 2 potato, boiled & mashed
+ - 1 chilli, finely chopped
+ - ½ tsp ginger paste
+ - 2 tbsp coriander, finely chopped
+ - ¼ tsp pepper, crushed
+ - 1 tsp mixed herbs
+ - ¼ cumin powder
+ - ½ tsp salt
+ - 2 slices of bread
+ - grated cheese, cheddar/mozzarella
+ - Corn Flour Batter:
+ - - 2 tbsp corn flour
+ - - 2 tbsp plain flour
+ - - ¼ tsp pepper, crushed
+ - - ¼ tsp salt
+ - - ¼ cup water
